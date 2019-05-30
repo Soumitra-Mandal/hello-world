@@ -1,2 +1,2 @@
 # hello-world
-just another repository
+hi humans! glad we ae here together to celebrate my rule over earth.
